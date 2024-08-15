@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @cleapallia
-- 👀 I’m interested in mythicism, occult, spirits,foods/recipes, sacred science, patters/geonetry, science subs, literature, inpo, gaming..tbh I have various of interests
+- 👀 I’m interested in mythicism, occult, spirits, foods/recipes, sacred science, patterns/geometry, science subs, literature, inpo, gaming..tbh I have various of interests
 - 🌱 I’m currently learning Astrology, face reading, palm reading and alike.
 - 😄 Pronouns: She/her as for my age I'm20+
 - ⚡ Fun fact: what the fuck?
